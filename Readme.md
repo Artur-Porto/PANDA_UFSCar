@@ -1,0 +1,1 @@
+Meus trabalhos/projetos no PANDA (Grupo de estudos de (P)rocessamento e (AN)álise de (DA)dos da UFSCar - Universidade Federal de São Carlos).
